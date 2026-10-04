@@ -1,0 +1,1001 @@
+## 欲都孤儿 贡献者名单
+> 20260815
+### 为汉化做出过贡献的诸位（排名不分先后）：
+<details>
+<summary>点击展开</summary>
+
+- 0Mr-Wolf0
+- 121090445(Barriek)
+- 127inch
+- 1310890015b-cell(Nya)
+- 23tinywishes(23-li'l-wishes)
+- 27844
+- 3428580294(Akane)
+- 502y
+- 730891196longaotian(阿雨🌧)
+- A-kia
+- AEEESEEEA(虚空)
+- Abreadpuppy
+- Aeserchengzi
+- Albedoui
+- Anahita-C(纯纯)
+- AnselCl(Quintillus)
+- ApostateJulian(ApostateJulian)
+- AshoreFall(Ashore)
+- BiologyRainbow
+- Bl-XY(噬星鸽)
+- Blakuout
+- Byuzh(白羽之花)
+- CKRainbow(CKRainbow)
+- CharnelKan
+- CherubKuar(kuar考爾)
+- CheungJY
+- Chougaliott(蔻加chouga)
+- Chunolate(清睢Clate)
+- ClameCyrus
+- CountsC(COUNTC)
+- Crow153
+- CytP-code
+- DarkWimd
+- Flos0310
+- FourtyThree413
+- Future-R(未来)
+- Gamez4Alpaca
+- HCPTangHY
+- KNKswn
+- Kagamine-Rinrin(Kagamine_Lilly)
+- Khaos423(Mr.Lamb)
+- Lemonadestars(柠檬水)
+- LeoLiao96(LeoLiao96)
+- LetDrummerKickit(月を探して)
+- Liano-28
+- Lynndaisy
+- MOm0M(MOM0M)
+- Maenoko(Mer)
+- MaplebirchLeaf
+- Melicha114
+- MissedHeart(丧心)
+- MuCL2023(良衣)
+- Na2OF4
+- Nana027777777(骨头便当)
+- Nephthelana(Benzene)
+- NiuTuran(辰未)
+- Not-a-DonJuanist
+- NumberSir(Number_Sir)
+- ORANGEEMF(华夫饼)
+- OracleMystic
+- PIKACA2221(Hlinc)
+- Peri-Yao
+- PlutoShu2530
+- PrunusSerrulata(PrunusSerrulata)
+- REI0909(怜)
+- Ramiel-s
+- RandyLuaW(燃灯琉璃)
+- Saltedfish1g
+- SatoriKochiya
+- SenriYuki
+- SilverSturgeon(银鲟鱼)
+- Smiling0Potato(Smiling Potato)
+- StressfulGlenn
+- Stvech
+- TMChao(芥末篮子)
+- Tgdgg(糖包)
+- USS-Corvan(Corvan)
+- Umineko233(UMINEKO)
+- Urped
+- VincentHDLee(V)
+- VogelJyn(Tauben)
+- WARMASTER-LEAns(净尘)
+- XDCirno9
+- XiangQixing(启星)
+- YineR0v0(YineR)
+- YoumuKon(YoumuKon)
+- ZL-XT(ZLZXT)
+- ZerxZ(深淵の鴿子)
+- acizaa(Dreaming)
+- aflbdmp
+- aria-chan-trans(Aria)
+- cat5230(彭猫猫)
+- catdexe(Mamon)
+- chary0079
+- chazi152
+- cphxj123(北极星)
+- drugl007
+- edabchann(edab)
+- fower151
+- gagadog
+- geilian
+- gn02994106(Ruby)
+- himearl(香草兔兔公爵)
+- infinitylose(天玄)
+- k9563461(Dorothy79)
+- kinshisan(菌丝)
+- luoyilate(洛拉姆斯)
+- lynchYANG
+- mao0316
+- maxnb233
+- minami29(minami)
+- misaka2047
+- miyako4828(miyako4828)
+- omvjro(+++嫉妒)
+- onefrogxx
+- pangbaibai27(pangb)
+- polarmail(智)
+- qlyxqlyx(阿泠)
+- qwedc001(Eric Guo)
+- rainbowflesh(是虹川肉)
+- rpk391
+- saria177(泥岩的狗)
+- soupdumpling420
+- spaghetti-22
+- sqbsayori
+- und3rgr0vvth
+- vvkbbg
+- wangba12345(31769636)
+- waveyl(wave)
+- white-rice94
+- whiteofsky
+- wmyouff
+- wuruoxi(Elf King)
+- xLuckTlyer(钱德勒)
+- xiaojiZack
+- xiawu240(妖魔鬼怪快离开⭐)
+- yifan010
+- yizesha
+- ynoppony
+- yueeeuan(薄荷奶兔)
+- zxaxxc
+
+</details>
+
+### 为建设中文维基提供过贡献的诸位（排名不分先后）：
+<details>
+<summary>点击展开</summary>
+
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+- +++嫉妒
+- 00v143
+- 05 Guured
+- 0p9o8i7u
+- 100Zhi
+- 100天
+- 101de9
+- 111998wxl
+- 114511q
+- 12344321q'w'w'q
+- 1237hc907a
+- 1344535564qwa
+- 13sammy
+- 1509418354z
+- 15727557402zy
+- 1922008062w
+- 19543739060lwj
+- 1996912qaz
+- 1tt1e 1219
+- 2403428122a
+- 2403428122a1
+- 259172社
+- 2632qqom
+- 2819660469a
+- 2Bdada
+- 333TF
+- 360313qlzj
+- 3doe0
+- 404bk
+- 4758jhssijsnsn
+- 5scent
+- 61loopy
+- 61loopyy
+- 774109a
+- 92ooo33
+- 9ty9aku
+- A1066160186
+- A11216266
+- A1192233622
+- A22480560
+- A29277935
+- A330420
+- A471301194
+- A5158
+- AABb1221
+- AI03141
+- ALLEN&ALFRED
+- ANLINSTUDIO
+- APKMirror
+- ASDA
+- AYAKAii
+- Aaccy
+- Abcd0715
+- Abeidou
+- Access
+- AceEchoey
+- Acloud
+- AdiosEden
+- Adsgrdh
+- Afterglow
+- Agatha Carlyle
+- AgustD
+- AgustDL
+- Ahxhdn
+- Aiklai
+- Ailiaili
+- Ailiina
+- Aisiling
+- Aither
+- Akichi
+- Alecithin
+- Aleq332300
+- Alice nuen
+- Alicekawaiiiii
+- Alixy
+- Alouette
+- Alsl
+- AmaLily
+- Amido
+- Amyamy
+- AnHe
+- Anangel
+- Andy861112
+- AnnieCat
+- Ansona0529
+- Anzhinuo
+- Aoilen
+- AokiUtage
+- Arisu QAQ
+- Artemis Yang
+- Artemismitty12321
+- ArtisTodd
+- Aryaku
+- As12d
+- Asd20031424
+- Asda52361
+- Asdfghjklzx
+- Aseaweed
+- Asgore
+- Ash1122
+- Astenir
+- Aucunkeine
+- AugustusVeripum
+- Awee
+- AyW
+- AyagawaAsaba
+- Ayin666
+- Ayndpa
+- Ayusai13
+- AzureCameo
+- B373973072
+- BQA
+- BV1yp4y1x7Sb
+- Babycare
+- Bad apple
+- Baijia
+- Baiyan
+- Basafish
+- Beambook
+- Bee1
+- Benchang72
+- Biantai456123
+- Bicai
+- Bioo
+- Birdmanonline
+- Bisan
+- Bitscat
+- Bleph
+- BlueWasabi
+- Blut1
+- Bohezy
+- Bonnie9895
+- Boory40223
+- Bowen
+- BowlGi
+- Busuanzi
+- Bwmgd
+- Bz02
+- C635190850
+- Caf43rer
+- Capaletric
+- Cassey
+- Cat 02
+- Catlight
+- Ccb114514
+- Celialapin
+- Cff
+- Charil
+- Charl the Internet User
+- Charlotteee
+- Chasinx
+- Cheam
+- Chelsea0812
+- Chen20081123
+- ChenItse
+- Cherrie0925
+- CherryQWQ
+- ChiESe
+- Chiangchiang
+- Chikus
+- Chocoholic98
+- Chocolate Moss
+- Chzuru
+- Cindy531824
+- Clean
+- ClifffordandAvon
+- Clnukinx
+- Coco006633
+- CocoPto
+- Cocopon
+- Cocosheep
+- Code03227
+- Creeping
+- Crumb fish
+- Csh
+- CtastrophE25
+- Cxq666O
+- Cynthia118
+- Cyy12345
+- DAX666
+- DBF300
+- DEIR
+- DGACha
+- DGCK81LNN
+- Dabin520134
+- Damazti3rd
+- Dangwan
+- Darckcut6964
+- DarkMatterMan4500
+- DavidX
+- Dcbjfsss
+- Dddbb
+- Ddzzkun
+- Deer
+- DefinitelyNotChairs
+- DeformedGodComplex
+- Deperens
+- Deseando
+- DestroyerS
+- Dknife
+- Dkwih4487
+- Dlamere
+- Dling
+- Dlmily
+- DmsHunk
+- DolAaJi
+- Doloris
+- Dolpc
+- Dominin
+- Doughnut
+- Dovob0515
+- Dr.Benzin
+- Drlaoyang
+- Dtvfhvf
+- Duown
+- Dwvwvvwvwb
+- Dyceet
+- DynamicPageList3 extension
+- Echoaround
+- EdmundZ
+- Ehehe-57
+- Einany
+- Eira
+- Eldegoss
+- Eldk
+- EmailChan
+- Emily102101081
+- Emily1997829
+- Ensadc
+- Enyu
+- Ephra1982
+- Errorzzr
+- Essic
+- Estella Clockwork
+- Eudemonism00
+- EvieEva
+- F.melody
+- F82731848
+- FCSfish
+- FLLFFL
+- FXIZ
+- Fairy rui
+- Featherhell
+- Fei qiu
+- FelixCh168
+- Fengyan
+- Fffffffffffffffffff
+- Fgftgh
+- Flammis023
+- Flow talk page manager
+- Flower475
+- Flslwjjsj
+- Foexile
+- Foggy520
+- ForEndlessNightmare
+- Fox hezi02
+- Frederica
+- Fucuu
+- FungiEggroll
+- Furratti
+- Fxsh
+- Fy950
+- GTH520
+- Ghost08
+- GhostMiku117
+- Gloriaync
+- Gmpo238
+- GnOr
+- Gold-wx
+- GraySparrow
+- Guize
+- Gurgle
+- Guro
+- Gushi
+- Gwynbleiddd
+- H019019
+- HYuusui1999
+- Ha112
+- HaBai
+- Hades0125
+- HaiTsuru
+- Halfaut
+- Haluki81
+- Hanaechi
+- HanedaToMo
+- Haodajj
+- Happy1041
+- Haruhihoshi
+- Hawkmoth
+- Hhfiiobn
+- Higuas
+- Hinata01
+- Hiroko
+- Hjbpyzn
+- Hmsterror
+- Homohu
+- HongXuan
+- Hs90419a
+- Hsuan3
+- Htw
+- Huangxiaoan10
+- Huazhi
+- Huh 0310
+- Huihuihui
+- Huliheban
+- Humeneee
+- Humenle
+- Hyphakinshi
+- Hzl
+- I am immersed in
+- I want
+- Icc
+- Iijjj
+- Init
+- InnocentWorld
+- Internet Errorer
+- Ioi906
+- Isla
+- Issuuuuuu
+- Isy
+- IyLer
+- JIN-SE
+- JIZ
+- JZDOF
+- Jack DOL
+- JayVejas
+- Jecbcqzlsumnwnb
+- Jiangjiang
+- Jiangjieshi
+- Jingheimoan
+- Jingyin1010
+- Jitm
+- Jjjxj
+- Jjssnsjj
+- Jk34
+- Jkas
+- Jljyboki
+- Jly13
+- Jojo41525
+- Judy1233456
+- Jvs
+- K2496745900
+- Kacastic
+- Kadmz
+- Kagamine rinrin
+- Kagamineslover
+- Kaidezhishang
+- Kalopsia
+- Kamoeth
+- Kanaeee
+- Kanelink
+- KannnouAyaka
+- Kb2090
+- Kenny08
+- Khaos423
+- Ki2333
+- Kidney~
+- Kimdom1999
+- Kimera
+- Kinvinyl
+- Kirayue
+- Kirina
+- Kkkkjl
+- Kkoun
+- Klmx12138
+- Kochiya kotomi
+- Koishi114514
+- Koishiiiiiiiii
+- Konjac
+- Koooooi
+- KotomiKochiya
+- Kouno Toushi
+- Kuame
+- Kuriyama
+- Kurumi Walnut
+- Kwylygz1
+- KylarLoveLoveLove
+- Kyrill1127
+- LLLLouise
+- LLYDG
+- LONGKONG
+- Ladiangory
+- Laiet
+- LalunRrosmarin
+- Lambda017
+- Laognf
+- Laonuo
+- LarryL
+- Lavadora
+- Lawliatew
+- LazyCat718
+- Leaf03
+- LeannaEllis
+- Leon960417
+- Leonithas
+- Leslie560912
+- Lgait
+- Lifeir
+- Lilian Yu
+- Ling6100923
+- Lingqishi1995
+- Linley
+- Linshide
+- Little One
+- LittleJinTRE
+- LittleNightmare
+- Liujiaji14
+- Liuyu1122
+- Lixingyi0823
+- Lizi00
+- Lizo
+- Llang
+- Lnlts
+- Loiili
+- LonZzz
+- LoopSpiner
+- Lotusmoon
+- Lovelyu0
+- Lucky Punghina
+- LuckyAnt
+- Lujingran
+- Lukute
+- Luminescence 516
+- LunaticLegacy
+- LuneFox
+- LuoAiko
+- Luohe
+- LupusXLass1404
+- Luvi
+- Luz333
+- Luzzy
+- Lww
+- Lyjjl
+- Lynn723
+- Lynor
+- Lzz
+- MCxiaoai
+- MGfort
+- ML99
+- MOW0
+- Machao
+- MagicalAstrogy
+- Magnusangel
+- Maiagaru
+- Maidlinmo
+- Malenez Jacoro
+- MallLeo
+- Mango0206
+- MangoJelly
+- Maomaoi
+- Maomaoooo
+- MaplebrichLeaf
+- Marsz413
+- Mathevellae
+- MaxwwiHido6o-49WHjY2i
+- MediaWiki default
+- Medicbag enjoyer
+- MediocreBlackMage
+- Megalemon
+- Meguri
+- Mengmeng
+- Mentaovo
+- MeowWoof
+- MiaK
+- Miami
+- Mian rouge
+- Michiruu
+- Mieow
+- Mihotel
+- Mika mii
+- Military border.
+- Miliww
+- Mimooo
+- Mimoooo
+- Minaca
+- Minnm
+- MirahezeGDPR 58d4bc504cb219e9109e79d70aff4022
+- MirahezeGDPR a2839233912c10967f81a42673979de9
+- MirahezeGDPR f9e7089bb8705e6849b7c35c65e2030c
+- MiraiMirai
+- Misaka25K
+- Missxu
+- Mist007
+- Miyako4828
+- Mjqlove
+- Mmy
+- Mo yu 037
+- MochaAD
+- Molee
+- Moliqiu1
+- Momo(afk)
+- Momoku1112
+- MoonSa
+- MoonWX
+- Morgas
+- Mortal0625
+- Moshen
+- Motoori Era
+- Mou79512
+- Mp5k
+- Mutsumi-futa
+- Mwt 823
+- Mx666
+- Mylaxb
+- N-boMB
+- NAmaomao
+- NOVA-W-DRAGON
+- NSJ666
+- Naftoria
+- Nailao
+- NaiveHa
+- Nate151514
+- Nekovo
+- Nic0t1ner
+- Night232
+- NightRain
+- Nigredo420
+- NoDFB
+- Noah404
+- Nonavere
+- NotAracham
+- Null0034
+- Number Sir
+- Nyano
+- O13
+- OAOa
+- OYAOYA
+- Ofooo
+- Oneoff2526
+- OoMEOWoO
+- Orchid712
+- Otokam
+- OvO13
+- OwOQAQAwA
+- OwOx
+- PC1597532684
+- PONTIFEXJULIAN
+- Peachhhh0615
+- PeryFox
+- Phumass1
+- Pl816098
+- Plastic jellyfish
+- Plm
+- Pluviophile
+- PolarisLin
+- PolliaJ
+- Primacy
+- Profound
+- Prooming
+- PrunusSerrulata
+- Purelewd
+- Purelewd1
+- Putini
+- Pyy
+- Q1453160001
+- Q299814377
+- QJY
+- QQBB
+- QQai
+- Qaq75391
+- Qian ge
+- Qiaoqiao
+- Qiluoxing521
+- Qime
+- Qing Jue
+- Qiqi77uu9
+- Qq2090295989
+- Qqqiaozzz
+- Qqwwwwww
+- Qsx0391
+- QwertQWERT123
+- Qwertyuiop1237465
+- Qwp
+- Qy0306
+- R18gWhen
+- Raiden Hoshi
+- Rain31415
+- Rearkhy152
+- Redesilow
+- Remilia
+- RetuEase
+- Rhine
+- Rhy-cea
+- Ria311
+- Ricoincolor
+- Rikako
+- Rimu1129
+- RobbinA
+- RobinSuKi
+- Roboko
+- Rongrongzi
+- Ronniechoyy
+- RonseThurro
+- Rrrr221101
+- Ryara
+- Ryo0513
+- S0870217
+- SHAOYU
+- Sadistic
+- Sakuya
+
+</details>
+
+### 为改进汉化内容提供过贡献的诸位（排名不分先后）：
+<details>
+<summary>点击展开</summary>
+
+- 123gjyy
+- 13953217432
+- 1902520039
+- 1Shirotori
+- 1diotDoomSpira1
+- 283952
+- 3naka
+- 466153334
+- ACE-DustofStars
+- AEEESEEEA
+- ALEXDRAGON555
+- Anahita-C
+- AnnAnn1017
+- Arueee
+- BluexBerry6475
+- Brandoyifang
+- CRSWMYHJ
+- Capaletric
+- CocLucia
+- DX-gi07
+- DachuiWong
+- DankerBobcat127
+- DeepDark010
+- EdminZ
+- Eleus7
+- Eloy4399
+- EvolveCrow
+- FE1-FE1
+- FLCnhzmry
+- Fe-debuff
+- Fimmm
+- Fuyuhana
+- Gionaqiaonai
+- He1l0-520
+- Jemella7
+- Kagamine-Rinrin
+- Kenita-OSBORN
+- KulfVolk
+- Likefu1
+- LitcheKing
+- Lizo233
+- MCxiaoai
+- Maenoko
+- Maildd4158
+- Melicha114
+- MillianaEP
+- Minta15
+- Moliyi
+- MorningLights
+- Nekofoxmiu
+- Nemunemu233
+- Nep-Timeline
+- NkeoPatch
+- NumberSir
+- Opera0420
+- Paul-16098
+- Pewds233
+- PichuChen
+- PingouinFerreux
+- Pony-CW
+- Qkat9
+- RL3461
+- RaveLaken
+- ReyADis
+- Riderdmyf
+- SYK1494715212
+- Sacred-Evil
+- Satori114514
+- SevenHDoll
+- Sharkila
+- ShiroSakurairo
+- SilowArisu
+- Sleependermasn
+- SlimFight1
+- SnapSora
+- Sphaela
+- Stellablackxjevin
+- StrangeCookies
+- Thankforfish
+- TillMist
+- UphealLaw
+- Willy0v0
+- Wingcrae
+- Wyhemm
+- XonlookerX
+- Y1uki
+- Ydm2
+- Zed660033
+- ZeroRing233
+- a845563011
+- ahhiisme
+- andyfrankbloop
+- asdll555
+- axuehe
+- ayanorz-cloud
+- bamfmiddle2
+- bd-star
+- becifia
+- bibibibiye
+- blackteawww
+- blackuoi
+- bomu114514
+- celestial-breeze
+- chairsssssss
+- creeping1023
+- cvknyf597f-byte
+- darkwithlight
+- dfs3251
+- dizzyfall258
+- dufy2000
+- fate5151
+- fcy10012
+- fengjixuanhen
+- francescahsu
+- ganhao88688
+- gengaixingming
+- ghost
+- gn02994106
+- godfandog
+- haitun202
+- hphhh222
+- iau713713713-crypto
+- ilokju
+- istkburgerking
+- iwndgqowkrbyw
+- kalahaha123-hue
+- kaname-raaana
+- kateW223
+- kelvin0180
+- kinogi
+- kuri4002
+- kyuusanngyou19990901-lab
+- lemon1119
+- len0112
+- liangchengjiuren
+- limidafei
+- loflfo
+- luckydeer136
+- luke72927
+- lunasolaris1379
+- luofall
+- m1100300108
+- magicchuchu
+- manbck
+- mark2330
+- mirrormirroronwall
+- miumiu99-dol
+- miyakoAki4828
+- moeqi
+- morrisan428
+- nasekaoru202
+- newbie-forever
+- nuoshengg-cyber
+- orishimo010
+- ouo30
+- pcwindy
+- please-enter-a-username
+- rainfall1019
+- robot1415
+- ruuu219
+- ryou1016
+- scarletea
+- scarywhale
+- sgj123456
+- shenqide5
+- shirokun2024
+- shovel25231
+- shugu2731-blip
+- si1ence1895
+- sm1234xt
+- sugy491366
+- thetes10304
+- toritorisuki
+- tracyj520520-byte
+- tutuzi618
+- uhohohoho
+- ujhfjosnfksd
+- unins000
+- vaccaria04
+- waxchian
+- whrfssb
+- willie9815
+- wlzy2333
+- wozhachengyanhua
+- wuwota
+- wuyuzegang
+- wx348055736
+- xh0589
+- xiaohua111-qoor
+- xiaohuangrenAM
+- xiaolok29
+- xiaxuede
+- xixia0516
+- xlx-165
+- xuguanpeng
+- xzyl4303
+- y5353030
+- yanm66
+- yinleirenlxy
+- yuban01652
+- yukko12345
+- yundixx
+- zakobakasen
+- zombie0424
+- zsbxws
+- zufengsama
+- zydkabd
+
+</details>
+
+---
+本游戏的汉化版制作、维护与更新属实不易，十分感谢以上不吝提供帮助、做出贡献的诸位。
